@@ -1,4 +1,4 @@
-![image](https://github.com/MalkiMalov/MalkiMalov/blob/main/Malki%20Malov.png)
+![image](https://github.com/MalkiMalov/MalkiMalov/blob/main/image%201.png)
 
 Connect with me:
 
